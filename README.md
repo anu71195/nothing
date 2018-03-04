@@ -1,4 +1,2 @@
 # nothing
-nothing 
-hdfhjahfd
-hfdfhjdjsfk
+nothing means literally nothing :P
